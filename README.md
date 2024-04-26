@@ -1,1 +1,1 @@
-Priprard by SM SHAKIL
+Prepared by SM SHAKIL
